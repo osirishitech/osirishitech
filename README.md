@@ -1,1 +1,1 @@
-# osirishitech
+# Osiris HiTech
